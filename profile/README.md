@@ -14,7 +14,7 @@ Designed to enrich exploration and extend gameplay longevity, Skyrim Anniversary
 
 ## Game Preview
 
-![Skyrim Anniversary World](https://images-na.ssl-images-amazon.com/images/I/81fXKcMJz3L._AC_UL600_SR600,600_.jpg)
+![Skyrim Anniversary World](https://m.media-amazon.com/images/I/81fXKcMJz3L._AC_UF1000,1000_QL80_.jpg)
 
 Explore expanded regions, new content, and additional questlines in the Skyrim world.
 
